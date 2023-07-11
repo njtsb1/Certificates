@@ -1,2 +1,2 @@
 # Certificates
-## Certificates Soft Skills e Hard Skills
+## Certificates Soft Skills and Hard Skills
